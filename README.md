@@ -1,4 +1,4 @@
-<h1 align="center">Larissa Eduarda</h1>
+<h1 align="center">Larissa Tirabassi</h1>
 
 <p align="center">
 Comunicação • Marketing Digital • Storytelling
